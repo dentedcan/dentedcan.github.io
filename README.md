@@ -1,2 +1,2 @@
 # dentedcan.github.io
-Happy 4th of July 2026
+Happy 4th
